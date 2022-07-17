@@ -1,1 +1,1 @@
-# projek
+# jangan lupa diextraxt dulu yaa:)
